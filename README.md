@@ -31,4 +31,4 @@ I am passionate about using data science and business intelligence to drive inno
 🔹 Let’s Connect!
 📧 Email: btabi895@gmail.com
 💼 LinkedIn: [www.linkedin.com/in/bismark-tabi-b24b08180]
-🌐 Portfolio: [https://btabiportfolio.my.canva.site/]
+🌐 Portfolio: [[https://btabiportfolio.my.canva.site/](https://www.canva.com/design/DAGjG_OIE6o/vO8X-qGg4oc5JSemn_x0aQ/view?utm_content=DAGjG_OIE6o&utm_campaign=designshare&utm_medium=link2&utm_source=uniquelinks&utlId=h4f59f6c356)]
